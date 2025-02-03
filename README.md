@@ -1,0 +1,2 @@
+# TechFreedom
+all techs democratization
